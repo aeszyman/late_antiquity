@@ -10,4 +10,6 @@ Evans, Helen and Brandie Ratliff, eds. _Byzantium and Islam: Age of Transition, 
 
 Kristensen, Troels Myrup. _Making and Breaking the Gods: Christian Response to Pagan Sculpture in Late Antiquity_. Aarhaus University Press, 2013.
 
+Lee, A.D. _Pagans and Christians in Late Antiquity: A Sourcebook_. Routledge, 2016.
+
 Sauer, Eberhard. _The Archaeology of Religious Hatred in the Roman and Early Medieval World_. Tempus, 2003.
