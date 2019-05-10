@@ -7,3 +7,5 @@ Elsner, Jaś. _Art and the Roman Viewer: The Transformation of Art from the Paga
 Elsner, Jaś. _Imperial Rome and Christian Triumph: The Art of the Roman Empire AD 100-450_. Oxford University Press, 1998.
 
 Evans, Helen and Brandie Ratliff, eds. _Byzantium and Islam: Age of Transition, 7th-9th Century_. The Metropolitan Museum of Art, 2012.
+
+Kristensen, Troels Myrup. _Making and Breaking the Gods: Christian Response to Pagan Sculpture in Late Antiquity_. Aarhaus University Press, 2013.
