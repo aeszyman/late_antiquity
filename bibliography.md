@@ -13,3 +13,5 @@ Kristensen, Troels Myrup. _Making and Breaking the Gods: Christian Response to P
 Lee, A.D. _Pagans and Christians in Late Antiquity: A Sourcebook_. Routledge, 2016.
 
 Sauer, Eberhard. _The Archaeology of Religious Hatred in the Roman and Early Medieval World_. Tempus, 2003.
+
+Vikan, Gary. _Early Byzantine Pilgrimage Art_. Dumbarton Oaks, 2010.
