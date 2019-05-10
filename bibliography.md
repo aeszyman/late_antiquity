@@ -1,5 +1,9 @@
+Bowersock, G.W., Peter Brown, and Oleg Grabar, eds. _Late Antiquity: A Guide to the Postclassical World_. The Belknap Press of Harvard University Press, 1999.
+
 Drake, H.A. _A Century of Miracles: Christians, Pagans, Jews, and the Supernatural, 312-410_. Oxford University Press, 2017.
 
 Elsner, Jaś. _Art and the Roman Viewer: The Transformation of Art from the Pagan World to Christianity_. Cambridge University Press, 1995.
 
 Elsner, Jaś. _Imperial Rome and Christian Triumph: The Art of the Roman Empire AD 100-450_. Oxford University Press, 1998.
+
+Evans, Helen and Brandie Ratliff, eds. _Byzantium and Islam: Age of Transition, 7th-9th Century_. The Metropolitan Museum of Art, 2012.
