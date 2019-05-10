@@ -9,3 +9,5 @@ Elsner, Jaś. _Imperial Rome and Christian Triumph: The Art of the Roman Empire 
 Evans, Helen and Brandie Ratliff, eds. _Byzantium and Islam: Age of Transition, 7th-9th Century_. The Metropolitan Museum of Art, 2012.
 
 Kristensen, Troels Myrup. _Making and Breaking the Gods: Christian Response to Pagan Sculpture in Late Antiquity_. Aarhaus University Press, 2013.
+
+Sauer, Eberhard. _The Archaeology of Religious Hatred in the Roman and Early Medieval World_. Tempus, 2003.
