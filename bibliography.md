@@ -2,6 +2,8 @@ Bowersock, G.W., Peter Brown, and Oleg Grabar, eds. _Late Antiquity: A Guide to 
 
 Clark, Gillian. _A Very Short Introduction_. Oxford: Oxford University Press, 2011.
 
+Dijkstra, Jitse H.F. “Religious Violence in Late Antique Egypt Reconsidered: The Cases of Alexandria, Panopolis, and Philae.” Journal of Early Christian History 5.2 (2015): 24-48.
+
 Drake, H.A. _A Century of Miracles: Christians, Pagans, Jews, and the Supernatural, 312-410_. Oxford University Press, 2017.
 
 Elsner, Jaś. _Art and the Roman Viewer: The Transformation of Art from the Pagan World to Christianity_. Cambridge University Press, 1995.
